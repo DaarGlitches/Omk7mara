@@ -1,5 +1,1 @@
-# Omk7mara
-
-# The Site Where Doxes Are Uploaded
-
-If Your Personal Information Is On The Site And Want It Removed Juest Eh Dm Me On Discord daar#0001
+Join My Discord <a href="https://dsc.gg/daardev">Click Me</a>
